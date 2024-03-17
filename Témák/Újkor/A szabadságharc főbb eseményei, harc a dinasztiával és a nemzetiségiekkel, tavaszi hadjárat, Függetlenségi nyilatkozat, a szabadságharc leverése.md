@@ -1,0 +1,71 @@
+## 1848-49-es szabadságharc
+- cél: hadsereg megszervezése
+	- 1848 június: népképviseleti választások
+		- összeül az országgyűlés
+		- Kossuth beszéde:
+			- 200.000 fős hadsereget kér + a fenntartásához pénzt az országgyűléstől ==> megadják neki
+- Kossuth-bankó
+	- az első magyar papír pénz
+- Az osztrákok a nemzetiségieket használják fel a magyarok ellen
+- Délvidék - szerb felkelés
+	- szeptember 11.: Jellasics (horvát)
+- Szeptember 29.: Pákozd
+	- magyar győzelem
+	- Móga Jánosa magyar csapatok fővezére
+	- a magyar sereg a határnál megáll
+- Október 6.: 2. Bécsi forradalom
+	- leverik
+- Október 30.: Schwechat
+	- magyar vereség
+- Windischgrätz
+- A magyar kormány lemond
+- Országos Honvédelmi Bizottmány ==> feladata védelem megszervezése 
+	- elnök: Kossuth Lajos
+- Erdélyben Bem József vezeti a magyar sereget
+- 49 márciusára Erdély felszabadul
+- 1848 December
+	- lemondtatják V. Ferdinándot
+	- Ferenc József az uralkodó
+	- megindulnak a császári seregek, átlépik a határt
+	- Görgei Arthúr vezetésével a fel-Dunai hadsereg nem vállal csatát, hanem visszavonul
+		- képzetlen hadsereg
+		- nagy túlerő
+		- Konfliktus Kossuthal
+	- Perczel Mór: Mórnál harcolók vereséget szenvednek
+	- Debrecenbe költözik a kormányzat
+- 1849 január - Váci kiáltvány
+	- cél: a tisztek lelkiismeretének válságának megoldása
+	- hangsúlyozza a harc törvényes jellegét
+	- a hadsereg szakszerű irányítását követelik
+#### Felvidéki hadjárat
+- cél: a császári főerőket elvonni Debrecen felől
+- északfelé a felvidék irányába követik Görgei seregét
+- Branyiszkói-hágó
+- Guyon Richárd, dél felé tudnak átkelni
+- Kápolnánál egyesül a három magyar sereg test
+- Damjanics János, Klapka György
+- február 26-27 Kápolnai csata (vereség)		
+- Dembinszky Henrik fővezér
+- Windisch jelentés: eltúlozza a győzelem jelentőségét
+- olmützi alkotmány:
+	- Magyarország csak egy tartománya
+#### Tavaszi hadjárat
+- Tápióbicske, Hatvan, Komárom, Isaszeg, Vác
+- Május 4-21 Buda felszabadul
+- Függetlenségi nyilatkozat 1849 április 14.
+	- függetlenség kimondása, Habsburgház trónfosztása
+- Kossuth Lajos lesz a kormányzó
+- 1849 május 9. I. Miklós cár kiáltványa, a szövetség értelmében 200.000 fős sereg érkezik Magyarországra (orosz)
+- Paskievics - ruszki
+- Hajnau - császári
+- 1849 július Szeged új nemzetközi törvény.:
+	- szélesebb körű nyelv használat, de nincs területi autonómia
+	- marad az állam nyelv
+- két lehetőség a Nagysallónál, Komáromnál csapást érni a császári seregre, Erők egyesítése Szegedtől Délre
+- Július 31. Segesvár Erdélyi sereg veresége
+- Augusztus 9. Temesvár magyar vereség
+- Kossuth átadja a teljhatalmat Görgeinek
+- Kossuth emigrál
+- Augusztus 13. Világos, Görgei lerakja a fegyvert az oroszok előtt ==> hogy amnesztiát kapjanak a túszok
+- Október 2. Bevehetetlen erőd Klapka György
+- Vidini levél, Kossuth Görgeit nevezi árulónak

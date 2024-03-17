@@ -1,0 +1,51 @@
+## A Holokauszt (Égő áldozat)
+- népirtás (pl.: indiánok, holodomor, Örmény)
+	- genocidium - népirtás
+	- 'Soá' = katasztrófa (Németül)
+	- porrajmos - roma holokauszt (II. vh alatt)
+- Gettó
+	- elkülönített városrész
+	- nagy a zsúfoltság
+	- éhínség, járványok
+- Tömegkivégzés
+	- SS bevetési csapatok
+		- tömegesen lőtték agyon a zsidókat
+		- elgázosító teherautók
+- 1992. január Wannsee-i konferencia
+	- Endlösung - végső megoldás
+	- Koncentrációs táborok - láger
+	- Kezdet: Gettósítás
+	- Elszállítás: Vonatok, marhavagonok
+		- Deportálás(transzport)
+	- Szelektálás
+		- csoportosítás: munkaképes
+	- Átvizsgálnak
+		- leborotválják a hajat
+		- tetoválás (számot), billog
+		- rab ruha
+	- "zuhanyzás" (gázkamra)(nők, idősek)(ciklon-b)
+	- krematórium
+- 1945 január 27. Holokauszt emléknapja
+	- szovjetek felszabadítják Auschwitz-ot
+- Április 16.-a (1944)
+	- akkor kezdik felállítani a magyar gettót
+	- 6 millió halt meg a 11 millióból
+- Magyarország-i Holokauszt
+	- letartóztatják a német elleneseket
+	- kihasználják Magyarországot
+	- frontra küldik a magyarokat
+	- VÉSZKORSZAK
+		- Jaross Andor --> belügy miniszter
+			- állam titkárai: Endre László és Baky László
+			- csendőrség: Ferenczy László
+- 1944
+	- Április elején össze írták a zsidókat
+	- Sárgacsillag viselése a zsidóknak
+		- megtiltják az utazást
+		- teljes vagyon össze írás (bankban zárolják)
+		- gettórendelet
+		- május 15. a deportálások kezdete
+		- Kassától Auschwitz
+		- Július 6. Horty leállítja a deportálást
+			- a Pesti zsidók megmenekülnek
+		- 450.000 főt deportálása (Vidéki zsidóság)

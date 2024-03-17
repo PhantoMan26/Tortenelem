@@ -1,0 +1,46 @@
+## Az egyházi hierarchia
+- Oratores - imádkozók (egyházi rend)
+- Klerikusok - egyháziak
+- Laikusok - világiak
+- az egyház közvetítette az emberek könyörgéseit
+- az egyházszervezet is hierarchikus volt
+	- kezdetben Római Birodalomban 5 pátriárka irányított az egyházat
+	- volt saját területük, amit egyenrangúan kormányoztak
+- A metropoliszok főpapjai a metropoliták voltak
+	- a metropoliták egyben érsek is voltak
+	- volt saját egyházmegyéjük
+	- kormányozták az egyházi tartományt
+- egyházmegyéket a püspökök kormányozták
+	- tekintélyesebb városok élén álló püspökök elnyerték az érseki címet
+- az egyházmegyék egyházkerületekbe szerveződtek (élén az esperes állt)
+- a legkisebb egység a az egyházközösség azaz a plébánia volt
+	- élén a plébános volt 
+![[Pasted image 20240315150317.png|350]]![[Pasted image 20240315150347.png|350]]
+## A szerzetesség kialakulása
+- Először megjelentek a remeték --> lemondtak a vagyonról és a jólétről
+- Keleten szerzetesközösség
+- Nyugaton bencések, mit Szent Benedek alapított 529-ben
+- a szerzetesek 3 fogadalmat tettek, az világi papokhoz képest
+	- lemondtak a vagyonról, azaz vállálták a szegénységet, nem volt saját vagyonuk
+	- nem házasodhattak, tisztasági fogadalom
+	- feltétlen engedelmességgel tartoztak elöljáróikhoz
+		- a regula határozta meg ezeket a szabályokat
+- A korai középkorban élt szerzetesek (bencések)
+	- ezekkel foglalkoztak
+		- imádság --> éneklés 3 óránként (mi a faszért???? ilyet miért csinálna valaki)
+		- fizikai munka végzés
+			- kódex másolás
+			- földművelés, borászat, gyógynövények termesztése
+- monostorok
+	- településektől távol volt
+		- erőd vagy várként működhetett
+		- monasztikus rendek
+	- nem foglalkoztak a híveikkel, hanem az egész társadalom ért imádkoztak akkoriban
+- Ferences rendek
+	- forradalmasítja a Bencés rendet
+		- szigorúan veszik a fogadalmakat
+		- nem rendelkezhettek tulajdonnal
+			- földjeik sem voltak
+		- adományokból éltek
+	- városi prédikációkkal segítették híveiket
+	- kolduló rendnek nevezik
